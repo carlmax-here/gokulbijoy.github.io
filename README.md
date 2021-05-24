@@ -1,4 +1,4 @@
-# Bruh_0x-Portfolio
+# Gokul Bijoy-Portfolio
 
 ya know this is my portfolio
 
